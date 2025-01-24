@@ -76,6 +76,8 @@ For flexibility and precision, it’s recommended to use a **pencil** in your po
 - **Creative Exploration**: Using a pencil for your pocket notebook encourages experimentation without fear of mistakes.
 - **Productivity**: STRATA turns your thoughts into actionable insights.
 
+> “STRATA isn’t a rulebook—it’s a toolkit. Use what works for you, tweak what doesn’t, and make it your own.”
+
 ---
 
 Welcome to **STRATA**—a system where every thought has a place, and every action has a purpose.
